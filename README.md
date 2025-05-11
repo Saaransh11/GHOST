@@ -1,1 +1,0 @@
-# GHOST Lives Forever
